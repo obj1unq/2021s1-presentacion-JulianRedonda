@@ -1,5 +1,5 @@
 ##  _Julián Redonda_
 
-![Yo](Yo.jpg)
+![Yo](Yo1.jpg)
 
-Tengo 25 años, soy de Avellaneda, trabajo en un laboratorio de insumos veterinarios como checker de calidad. Mi mayor hobbies son los autos en escala. 
+Tengo 25 años, soy de Avellaneda, trabajo en un laboratorio de insumos veterinarios como checker de calidad. Soy fana de los juegos online 
